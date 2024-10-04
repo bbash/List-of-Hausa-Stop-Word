@@ -1,0 +1,1 @@
+# List-of-Hausa-Stop-Word
